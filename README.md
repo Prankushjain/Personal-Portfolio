@@ -1,2 +1,2 @@
 # Personal-Portfolio
-this repo for personal portfolio
+PRANKUSH JAIN
